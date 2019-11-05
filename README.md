@@ -1,2 +1,2 @@
-# qanny.github.coio
+# qanny.github.io
 Slim &amp; Health | Qanny
